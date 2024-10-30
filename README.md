@@ -1,0 +1,2 @@
+
+1983 es una serie de televisión de streaming de thriller polaco producida y estrenada por Netflix el 30 de noviembre de 2018. La serie, creada y escrita por Joshua Long y basada en una idea original de Long y Maciej Musia, está ambientada en una línea de tiempo alternativa en la que la caída de la República Popular Polaca comunista nunca ocurrió, y el Telón de Hierro sigue vigente. Es la primera serie original polaca de Netflix.
